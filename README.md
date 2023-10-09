@@ -1,1 +1,0 @@
-# Bintuaristosi.github.io
